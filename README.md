@@ -72,7 +72,7 @@ Estou sempre estudando, praticando e buscando melhorar minhas habilidades em pro
 
 ## 📫 Contato
 
-- LinkedIn: www.linkedin.com/in/gabriel-pereira-silva-5a138b3b1
+- LinkedIn: (https://www.linkedin.com/in/gabriel-pereira-silva-5a138b3b1/)
 - Email: gabrielpereirasilva575@gmail.com
 
 ---
